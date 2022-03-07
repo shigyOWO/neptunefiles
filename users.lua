@@ -1,1 +1,1 @@
-Artbom dantesie shigy shigy shigy shigy
+Artbom dantesie shigy

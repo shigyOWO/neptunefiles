@@ -1,1 +1,1 @@
-Stoyack shigy stoyack Stoyack shigy shigy
+open htttp shigy stoyack shigy htttp closee

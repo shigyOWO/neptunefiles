@@ -1,1 +1,1 @@
-open htttp shigy stoyack shigy sss htttp closee
+open htttp shigy stoyack shigy htttp closee

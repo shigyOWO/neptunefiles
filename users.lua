@@ -1,1 +1,1 @@
-open htttp shigy1 stoyack shigy1 abobus1339 fask1 htttp closeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+open htttp shigydaun stoyack shigy abobus1339 shigydaun htttp closeeeeeeeeeeeeeeeeeeeeeeeeeeeee
